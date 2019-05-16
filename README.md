@@ -25,7 +25,10 @@ Next, reach out to your Career Coach ASAP to share your great news and plan a ti
 ·   	Company Policies, including vacation time, holidays, job-related expenses (if any)
 
 ·   	Fringe benefits being offered (if any)
- 
+
+
+**NOTE:** Once you accept an offer from a company, you should honor that commitment. Reneging on one offer to accept another offer after the fact is incredibly unprofessional and poor etiquette; doing so will negatively impact your reputation with that company and the people you met there going forward (again, keeping in mind that people change jobs, and someone you interview with today at Company A could be a part of the interview process at Company B in the future). Also, if you renege on an offer from the company that you were introduced to from Flatiron’s Employer Partnerships team, that could very likely negatively impact Flatiron’s future relationship with that company as well.
+
 ### Non-Compete Clauses
 
 It’s possible your job offer may contain some restrictive covenants, sometimes called Non-Compete Clauses. These are legal provisions designed by the company to protect their intellectual property and their business. There may also be sections dealing with other areas such as Indemnification and Non-Disparagement. Read these items very carefully; in accepting this job you may also be accepting future obligations and potential restrictions if you should leave the company and seek employment elsewhere, or if a potential dispute in the future arises. This step is easy to overlook because of how exciting receiving an offer is. The fine print can provide you with information that may impact your future. Your future self will thank you for taking the time to read and make an informed choice.
